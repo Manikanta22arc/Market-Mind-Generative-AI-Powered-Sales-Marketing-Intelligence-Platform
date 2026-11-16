@@ -1,0 +1,1 @@
+# Market-Mind-Generative-AI-Powered-Sales-Marketing-Intelligence-Platform
